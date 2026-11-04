@@ -22,7 +22,9 @@ Der Kinderladen hat wochentags geöffnet von 8:00 bis 16:30 Uhr.
 
 Wendet euch bei Platzanfragen bitte an unsere Email-Adresse.
 
-Wir suchen immer wieder nach Honorarkräften, die in Krankheitsfällen oder
+Wir haben ab Dezember 2026 oder Januar 2027 eine Stelle für eine\*n Erzieher\*in frei! [Mehr Infos hier](https://www.daks-berlin.de/marktplatz/stellenmarkt/job_offer/erzieherin-wmd-fuer-25h-festanstellung-gesucht-16360/view).
+
+Außerdem suchen wir immer wieder nach Honorarkräften, die in Krankheitsfällen oder
 ähnlichem bei uns aushelfen können. Bei Interesse schickt bitte eine Mail.
 
 ## Wir sind die Kinkies
